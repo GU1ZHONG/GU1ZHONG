@@ -17,7 +17,8 @@
 
 # 𝙄'𝙢 𝙡𝙖𝙯𝙮 𝙩𝙤 𝙙𝙧𝙖𝙬 𝙤𝙠? 𝙤𝙠...
 (I swear I will if I have motivation☹️)
-![1000063883](https://github.com/user-attachments/assets/8d0070bd-0870-4e43-82f0-8e3bc723ade6)
+![1000064120](https://github.com/user-attachments/assets/345570d8-8fdd-41bf-84aa-752c348254dd)
+
 
 🎮: Minimuse
 
